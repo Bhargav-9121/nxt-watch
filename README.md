@@ -1,4 +1,4 @@
-Live Link: <a>https://nxtwatchdh5.ccbp.tech/</a>
+Live Link: <a target="_blank">https://nxtwatchdh5.ccbp.tech/</a>
 
 ### Refer to videos below:
 
